@@ -1,0 +1,1 @@
+This is Trung's web blog
